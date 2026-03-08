@@ -1,4 +1,4 @@
-## 👋 Hi, I'm Rithika | AI Product Manager
+## 👋 Hi, I'm Rithikaa | AI Product Manager
 
 I specialize in helping businesses navigate the "AI-First" world. My focus is on creating products that don't just use AI for the sake of it, but solve real-world problems with security and accuracy.
 
